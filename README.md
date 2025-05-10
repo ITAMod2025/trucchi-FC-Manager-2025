@@ -1,0 +1,1 @@
+# trucchi-FC-Manager-2025
